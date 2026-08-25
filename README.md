@@ -1,1 +1,1 @@
-# SkillBridgeHer
+🌟 SkillBridge Her — A personalized STEM career and skill development platform designed to empower women through skill assessment, career exploration, AI guidance, personalized learning roadmaps, progress tracking, opportunities, and a supportive community.
